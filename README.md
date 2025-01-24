@@ -1,1 +1,1 @@
-//Just saying..
+//it's ok.
